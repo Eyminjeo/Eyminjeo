@@ -1,1 +1,1 @@
-Detroid till i die motherfucker
+Detroit till i die motherfucker
